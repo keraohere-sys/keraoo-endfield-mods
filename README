@@ -1,0 +1,14 @@
+ONLY FOR PERSONAL USE.
+
+DO NOT upload the contents of my repositories to other platforms or use it for profit!
+
+You can download the mod files from the releases section.
+
+
+
+
+仅供个人使用。
+
+不得将我仓库内的内容上传至其他平台或利用其盈利！
+
+你可以在releases分区下载mod文件。
